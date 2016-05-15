@@ -1,0 +1,19 @@
+# Site settings
+title: John 8 32
+name: A Beliver # your name
+# email: youremail@example.com # your email address
+description: >
+    And ye shall know the truth, and the truth shall make you free.
+baseurl: "" # the subpath of your site, e.g. /blog
+url: "https://john8-32.github.io" # the base hostname & protocol for your site
+twitter_username: john8-32 # your Twitter username
+github_username: john8-32 # your Github username
+#disqus_username: itisbenjamin # your disqus username
+
+#google-analytics: UA-75034651-1 # add it if you have one
+
+#skillstree: true # turn on or off the skills tree in about page
+
+# Build settings
+permalink: none
+markdown: kramdown
