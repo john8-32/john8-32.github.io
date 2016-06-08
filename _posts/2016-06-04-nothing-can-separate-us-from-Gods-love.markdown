@@ -36,11 +36,11 @@ _Who shall separate us from the love of Christ? shall tribulation, or distress, 
   Bible says "_As far as the east is from the west, so far hath he removed our transgressions_".
 
 ##### 3. The sufferings that we endure in this life. (Actually When Paul wrote the letter to Romans he was dealing with such situation)
-  Peradventure sufferings make us thing God does not love us. But all the sufferings come results of sins in the world Practically saying, if we live a happy, successful life a lot of people does not like that, enemy does not like it, this  is why even if we are not doing anything wrong, trouble follows us and we should not be surprised, by seeing the troubles follow us. Every bad thing comes form the enemy, but we misunderstood God does not love us. And we go ever further and say God why are you doing this? what have i done? But Jesus told *"These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world."* John 16: 33.
+  Peradventure sufferings make us thing God does not love us. But all the sufferings come results of sins in the world Practically saying, if we live a happy, successful life a lot of people does not like that, enemy does not like it, this  is why even if we are not doing anything wrong, trouble follows us and we should not be surprised, by seeing the troubles follow us. Every bad thing comes form the enemy, but we misunderstand as God does not love us. And we go ever further and say God why are you doing this? what have i done? But Jesus told *"These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world."* John 16: 33.
 
 
 ### Five pair of words.
-  Paul is using five pair of words to explain Nothing can separate us from God's love. When we look at all five pair of words it clearly proves nothing can separate us from God's Love.
+  Paul uses five pair of words to explain Nothing can separate us from God's love. When we look at all five pair of words it clearly proves nothing can separate us from God's Love.
 
 ##### a. life, death.
   Death can not separate us from God's Love. _But I would not have you to be ignorant, brethern, concerning them which are asleep, that ye sorrow not, even as others which have no hope. For if we believe that Jesus died and rose again, even so them also which sleep in Jesus will God bring with him_ 1 Thessalonians 4: 13,14. We have already seen the sin and the suffering that we endure in this life can not separate from God's love. Neither death nor life can separate us from God's love hence nothing in between.
