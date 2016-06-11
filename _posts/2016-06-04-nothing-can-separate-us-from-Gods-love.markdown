@@ -24,6 +24,8 @@ _Who shall separate us from the love of Christ? shall tribulation, or distress, 
 
   3. The people of Nineveh were living a wicked life. God Chose Jonah to proclaim judgment to Nineveh. The people of Nineveh were so cruel, so Jonah wanted the Nineveh to be perished. He resisted and attempted to flee. Eventually Jonah went to Nineveh and prophesied against Nineveh. People of the city repent and God forgive them. Jonah was furious, and he beseeched God to kill him. The request was denied when God caused a tree to grow over him, giving him shade. It was grateful, Jonah's anger returned next day, when God sent a worm to eat the plant, now Jonah tells God that it would be better if he were dead. Then God points out His Love as _Then said the LORD, Thou hast had pity on the gourd, for the which thou hast not laboured, neither madest it grow; which came up in a night, and perished in a night: And should not i spare Nineveh, the great city, wherein are more than sixscore thousand persons that cannot discern between their right hand and their left hand; and also much cattle. Jonah 4: 10, 11_
 
+  4. _Jeremiah 31: 3 - The LORD hath appeared of old unto me, saying, Yea, I have loved thee with an everlasting love: therefore with lovingkindness have i drawn thee._
+
 ### Some time in our practical life we feel does God Love me?
   If anything goes wrong in our life or if life is not going as we planned, we might think Does God Love me? Following reasons why people does not accept the truth easily.
 
